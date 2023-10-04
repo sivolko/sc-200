@@ -160,3 +160,15 @@ relatable ![Alt text](image-26.png)
 ### 54. ![Alt text](image-59.png)
 
 ![Alt text](image-60.png)
+
+### 55. ![Alt text](image-61.png)
+
+### 56. ![Alt text](image-62.png)
+
+### 57. ![Alt text](image-63.png)
+
+### 58. ![Alt text](image-64.png)
+
+### 59. ![Alt text](image-65.png)
+
+### 60. ![Alt text](image-66.png)
